@@ -6,6 +6,6 @@
 - 🌱 I’m currently learning Data Analytics 
 - 👯 I’m looking to collaborate on projects
 - 🤔 I’m looking for help with master mind in Data Analysis
-- 📫 How to reach me:https://www.linkedin.com/in/jacinta-amaka-663184252/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BE%2FWl4n%2FUREqpsQLrKZig%2Bw%3D%3D ...
+- 📫 How to reach me:https://www.linkedin.com/in/jacinta-amaka-663184252/
 - ⚡ Fun fact:I love dancing and cooking
 
